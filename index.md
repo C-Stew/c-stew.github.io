@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+I'm a highschool student from the United States who's into video games, computers, coding, and design.
 
-Maybe say a some things about yourself.
+Here, you'll find posts regarding what I'm doing and what content I've uploaded!
 
-Or maybe what you plan to blog about.
+-----
