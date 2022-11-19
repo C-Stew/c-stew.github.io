@@ -11,7 +11,7 @@ For years, I've really wanted to start streaming to Twitch or Youtube. I always 
 but my perfectionistic nature in fine-tuning OBS prevented me from ever going live.
 
 Now that I have a PS5, starting a stream is as simple as pressing a few buttons, and voila! I conducted a test
-stream with Shadow of War [here](), but it's nothing special. I just talked with my friend who's in chat for
+stream with Shadow of War [here](https://youtu.be/eDYzB8AZjQU), but it's nothing special. I just talked with my friend who's in chat for
 the whole 75 minutes.
 
 ### Going Forward
